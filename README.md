@@ -1,2 +1,7 @@
 # proyecto-formativo
 proyecto formativo
+pagina creada por una ganster                          ._.                     ._.        
+hola chicos
+,bienvenidos a mi pagina wed     ._.
+listos para una nueva experiencia 
+besos
